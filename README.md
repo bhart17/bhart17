@@ -1,4 +1,4 @@
-MSc Electronic Engineering student, University of Southampton
+MEng Electronic Engineering student, University of Southampton
 
 [@bobhart_][ig]
 
